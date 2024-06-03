@@ -33,4 +33,4 @@ Ask for the farmer's market startup kit
 Arrive a bit early so give plenty of time to setup.  
 Bring a cooler with drinks and snacks you can sit on.
 
-Have things to give away and start conversations.  Your in a public place with friendly people.
+Have things to give away and start conversations.  You are in a public place with friendly people!
