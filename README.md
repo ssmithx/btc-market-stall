@@ -28,10 +28,11 @@ Stickers, trinkets.
 
 Great resources:
 https://x.com/NoWasteBTCsigns
-Ask for the farmer's market startup kit - stickers, banners, paperweights.
+Ask for the farmer's market startup kit - stickers, banners, paperweights and more
 
 We found bringing BLOCKS OF COPPER attracted loads of people.
 Coined it the 'hard money cafe' and we're going to be giving away small cups of coffee and selling bags from https://sats.coffee
+(wicked stickers too)
 
 Arrive a bit early to give plenty of time to setup.  
 Bring a cooler with drinks and snacks you can sit on and a camp chair
