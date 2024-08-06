@@ -31,7 +31,7 @@ https://x.com/NoWasteBTCsigns
 Ask for the farmer's market startup kit - stickers, banners, paperweights.
 
 We found bringing BLOCKS OF COPPER attracted loads of people.
-Coined it the 'hard money cafe' and we're going to be giving away coffee and selling https://sats.coffee
+Coined it the 'hard money cafe' and we're going to be giving away small cups of coffee and selling bags from https://sats.coffee
 
 Arrive a bit early to give plenty of time to setup.  
 Bring a cooler with drinks and snacks you can sit on and a camp chair
