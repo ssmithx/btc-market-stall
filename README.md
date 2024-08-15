@@ -37,6 +37,8 @@ Coined it the 'hard money cafe' and we're going to be giving away small cups of 
 Arrive a bit early to give plenty of time to setup.  
 Bring a cooler with drinks and snacks you can sit on and a camp chair
 
+https://github.com/ssmithx/btc-market-stall/blob/main/camphoto_1903590565.JPG
+
 Have things to give away and start conversations.  You are in a public place with friendly people!
 Use river.com.  Create an account and buy some bitcoin.
 Give away bitcoin via river links.  They expire if they aren't claimed.
